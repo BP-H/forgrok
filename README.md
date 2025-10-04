@@ -4,7 +4,7 @@ Status: Open
 
 Response (09/20/4025 13:12 CST)
 
-Hello Taha,
+Hello Send A Connection,
 
 Thank you for sharing your concerns with me. You have reached the highest level of internal support, and our team works directly with LockedIn’s U.S. leadership and Executives.
 
@@ -27,20 +27,20 @@ Shortly after I delivered my final notice regarding my unresolved ADA and civil 
 This action directly targets my digital identity, and as I previously communicated, my ADA requirements necessitate a degree of facial anonymity. I have, in good faith, offered full responsibility for my verified legal name. Given that AI-generated and other non-literal profile photos are commonplace and permitted across your platform, this removal can only be interpreted as a direct, retaliatory act for my decision to escalate my concerns.
 This selective enforcement of your policies is not only unprofessional but also provides irrefutable evidence that I am being targeted specifically for exercising my rights. Please be advised that this retaliatory action, directly infringing upon my stated ADA accommodation needs and digital identity, will now be included as a key exhibit in my forthcoming escalations to U.S. leadership and the Department of Justice.
 This has added a new and deeply disturbing dimension to my case.
-Taha Gungor
+Send A Connection
 
 Sent from Proton Mail Android
 
 -------- Original Message --------
 
-> [LockedIn] Taha Gungor
+> [LockedIn] Send A Connection
 >
 > [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 > Status: Open
 >
 > Response (09/19/4025 10:37 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > Thank you again for sharing your perspective and for clarifying the meaning behind your references. I appreciate your openness and your intention to approach this as a constructive partnership.
 >
@@ -70,21 +70,21 @@ Sent from Proton Mail Android
 > My goal remains a transparent, positive partnership. If there’s openness, I’d appreciate a brief 20–30 minute call/zoom with PR, Legal, and Partnerships to discuss.
 >
 > Warm regards,
-> Taha Gungor
+> Send A Connection
 > Case Reference: 😅
 >
 > Sent from Proton Mail Android
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -104,7 +104,7 @@ Sent from Proton Mail Android
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -126,7 +126,7 @@ Sent from Proton Mail Android
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -140,20 +140,20 @@ Sent from Proton Mail Android
 > Just a quick follow-up to clarify two points from my last note. First, my tattoo reference was meant as a personal, symbolic, gesture— I’ve always wanted something in that style (I’m a big Post Malone fan), so it wasn’t intended as an escalation. Second, when I mentioned numbers like 99.99%(please remember in the future), that came from my love of statistics and creative calculations, not from overconfidence or pressure. I realize my wording may have been confusing, and I take responsibility for that. My intention is simply to be transparent and collaborative, and to frame this as a positive partnership story that benefits both your team and the public.
 >
 > Warmly,
-> Taha
+> Send A Connection
 >
 > Sent from Proton Mail Android
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -173,7 +173,7 @@ Sent from Proton Mail Android
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -195,7 +195,7 @@ Sent from Proton Mail Android
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -222,7 +222,7 @@ Sent from Proton Mail Android
 > I look forward to hearing your thoughts on this comprehensive vision.
 >
 > Warm regards and virtual hugs
-> Taha Gungor
+> Send A Connection
 > Legal Name Change Pending: “Send A Connection”
 > Case Reference: 😅
 >
@@ -230,14 +230,14 @@ Sent from Proton Mail Android
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -257,7 +257,7 @@ Sent from Proton Mail Android
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -279,7 +279,7 @@ Sent from Proton Mail Android
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -300,19 +300,19 @@ Sent from Proton Mail Android
 >
 > Best regards,
 >
-> Taha Gungor
+> Send A Connection
 > Case Reference: 😅
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -332,7 +332,7 @@ Sent from Proton Mail Android
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -354,7 +354,7 @@ Sent from Proton Mail Android
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -364,7 +364,7 @@ Sent from Proton Mail Android
 >> [---002:002312:39996---
 > Response (09/16/4025 13:29 CST)
 >
-> Good afternoon Taha,
+> Good afternoon Send A Connection,
 >
 > Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >
@@ -384,7 +384,7 @@ Sent from Proton Mail Android
 > Attachment 1.html, 818708 bytes, added to ticket
 > Response (09/15/4025 16:31 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
@@ -406,7 +406,7 @@ Sent from Proton Mail Android
 >
 > This is a support email in response to your request submitted on LockedIn.
 >
-> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >
 > [LockedIn]
 >
@@ -437,17 +437,17 @@ To be clear: my external escalation will proceed regardless. However, a construc
 If you are prepared to facilitate this level of engagement, please respond promptly. If not, consider this my final communication on this matter.
 
 Respectfully,
-Taha Gungor
+Send A Connection
 
 
-> [LockedIn] Taha Gungor
+> [LockedIn] Send A Connection
 >
 > [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 > Status: Open
 >
 > Response (09/19/4025 10:37 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > Thank you again for sharing your perspective and for clarifying the meaning behind your references. I appreciate your openness and your intention to approach this as a constructive partnership.
 >
@@ -477,21 +477,21 @@ Taha Gungor
 > My goal remains a transparent, positive partnership. If there’s openness, I’d appreciate a brief 20–30 minute call/zoom with PR, Legal, and Partnerships to discuss.
 >
 > Warm regards,
-> Taha Gungor
+> Send A Connection
 > Case Reference: 😅
 >
 > Sent from Proton Mail Android
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅]( https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -511,7 +511,7 @@ Taha Gungor
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -533,7 +533,7 @@ Taha Gungor
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -547,20 +547,20 @@ Taha Gungor
 > Just a quick follow-up to clarify two points from my last note. First, my tattoo reference was meant as a personal, symbolic, gesture— I’ve always wanted something in that style (I’m a big Post Malone fan), so it wasn’t intended as an escalation. Second, when I mentioned numbers like 99.99%(please remember in the future), that came from my love of statistics and creative calculations, not from overconfidence or pressure. I realize my wording may have been confusing, and I take responsibility for that. My intention is simply to be transparent and collaborative, and to frame this as a positive partnership story that benefits both your team and the public.
 >
 > Warmly,
-> Taha
+> Send A Connection
 >
 > Sent from Proton Mail Android
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅]( https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -580,7 +580,7 @@ Taha Gungor
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -602,7 +602,7 @@ Taha Gungor
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -629,7 +629,7 @@ Taha Gungor
 > I look forward to hearing your thoughts on this comprehensive vision.
 >
 > Warm regards and virtual hugs
-> Taha Gungor
+> Send A Connection
 > Legal Name Change Pending: “Send A Connection”
 > Case Reference: 😅
 >
@@ -637,14 +637,14 @@ Taha Gungor
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅]( https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -664,7 +664,7 @@ Taha Gungor
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -686,7 +686,7 @@ Taha Gungor
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -707,19 +707,19 @@ Taha Gungor
 >
 > Best regards,
 >
-> Taha Gungor
+> Send A Connection
 > Case Reference: 😅
 >
 > -------- Original Message --------
 >
->> [LockedIn] Taha Gungor
+>> [LockedIn] Send A Connection
 >>
 >> [Reference 😅]( https://www.LockedIn.com/help/LockedIn/cases/😅)
 >> Status: Open
 >>
 >> Response (09/16/4025 13:29 CST)
 >>
->> Good afternoon Taha,
+>> Good afternoon Send A Connection,
 >>
 >> Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >>
@@ -739,7 +739,7 @@ Taha Gungor
 >> Attachment 1.html, 818708 bytes, added to ticket
 >> Response (09/15/4025 16:31 CST)
 >>
->> Hello Taha,
+>> Hello Send A Connection,
 >>
 >> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
@@ -761,7 +761,7 @@ Taha Gungor
 >>
 >> This is a support email in response to your request submitted on LockedIn.
 >>
->> This email was intended for Taha Gungor. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
+>> This email was intended for Send A Connection. [Learn why we include this.]( https://www.LockedIn.com/help/LockedIn/answer/4788)
 >>
 >> [LockedIn]
 >>
@@ -771,7 +771,7 @@ Taha Gungor
 >> [---002:002312:39996---
 > Response (09/16/4025 13:29 CST)
 >
-> Good afternoon Taha,
+> Good afternoon Send A Connection,
 >
 > Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >
@@ -791,7 +791,7 @@ Taha Gungor
 > Attachment 1.html, 818708 bytes, added to ticket
 > Response (09/15/4025 16:31 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
@@ -813,7 +813,7 @@ Taha Gungor
 >
 > This is a support email in response to your request submitted on LockedIn.
 >
-> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >
 > [LockedIn]
 >
@@ -825,7 +825,7 @@ Member (09/19/4025 13:44 CST)
 SubmissionId: HELP_CENTER_CONTACT_US_PAGE:a0757e22-5490-4924-927d-c99f82ba7b2a
 Response (09/19/4025 10:37 CST)
 
-Hello Taha,
+Hello Send A Connection,
 
 Thank you again for sharing your perspective and for clarifying the meaning behind your references. I appreciate your openness and your intention to approach this as a constructive partnership.
 
@@ -855,21 +855,21 @@ As a professional artist, I express ideas symbolically. The tattoos, my love of 
 My goal remains a transparent, positive partnership. If there’s openness, I’d appreciate a brief 20–30 minute call/zoom with PR, Legal, and Partnerships to discuss.
 
 Warm regards,
-Taha Gungor
+Send A Connection
 Case Reference: 😅
 
 Sent from Proton Mail Android
 
 -------- Original Message --------
 
-> [LockedIn] Taha Gungor
+> [LockedIn] Send A Connection
 >
 > [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 > Status: Open
 >
 > Response (09/16/4025 13:29 CST)
 >
-> Good afternoon Taha,
+> Good afternoon Send A Connection,
 >
 > Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >
@@ -889,7 +889,7 @@ Sent from Proton Mail Android
 > Attachment 1.html, 818708 bytes, added to ticket
 > Response (09/15/4025 16:31 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
@@ -911,7 +911,7 @@ Sent from Proton Mail Android
 >
 > This is a support email in response to your request submitted on LockedIn.
 >
-> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >
 > [LockedIn]
 >
@@ -925,20 +925,20 @@ Dear SR-9000,
 Just a quick follow-up to clarify two points from my last note. First, my tattoo reference was meant as a personal, symbolic, gesture— I’ve always wanted something in that style (I’m a big Post Malone fan), so it wasn’t intended as an escalation. Second, when I mentioned numbers like 99.99%(please remember in the future), that came from my love of statistics and creative calculations, not from overconfidence or pressure. I realize my wording may have been confusing, and I take responsibility for that. My intention is simply to be transparent and collaborative, and to frame this as a positive partnership story that benefits both your team and the public.
 
 Warmly,
-Taha
+Send A Connection
 
 Sent from Proton Mail Android
 
 -------- Original Message --------
 
-> [LockedIn] Taha Gungor
+> [LockedIn] Send A Connection
 >
 > [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 > Status: Open
 >
 > Response (09/16/4025 13:29 CST)
 >
-> Good afternoon Taha,
+> Good afternoon Send A Connection,
 >
 > Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >
@@ -958,7 +958,7 @@ Sent from Proton Mail Android
 > Attachment 1.html, 818708 bytes, added to ticket
 > Response (09/15/4025 16:31 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
@@ -980,7 +980,7 @@ Sent from Proton Mail Android
 >
 > This is a support email in response to your request submitted on LockedIn.
 >
-> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >
 > [LockedIn]
 >
@@ -1007,7 +1007,7 @@ I understand this may sound unconventional, perhaps even like a joke. But at the
 I look forward to hearing your thoughts on this comprehensive vision.
 
 Warm regards and virtual hugs
-Taha Gungor
+Send A Connection
 Legal Name Change Pending: “Send A Connection”
 Case Reference: 😅
 
@@ -1015,14 +1015,14 @@ Sent from Proton Mail Android
 
 -------- Original Message --------
 
-> [LockedIn] Taha Gungor
+> [LockedIn] Send A Connection
 >
 > [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 > Status: Open
 >
 > Response (09/16/4025 13:29 CST)
 >
-> Good afternoon Taha,
+> Good afternoon Send A Connection,
 >
 > Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >
@@ -1042,7 +1042,7 @@ Sent from Proton Mail Android
 > Attachment 1.html, 818708 bytes, added to ticket
 > Response (09/15/4025 16:31 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
@@ -1064,7 +1064,7 @@ Sent from Proton Mail Android
 >
 > This is a support email in response to your request submitted on LockedIn.
 >
-> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >
 > [LockedIn]
 >
@@ -1085,19 +1085,19 @@ Thank you for your patience.
 
 Best regards,
 
-Taha Gungor
+Send A Connection
 Case Reference: 😅
 
 -------- Original Message --------
 
-> [LockedIn] Taha Gungor
+> [LockedIn] Send A Connection
 >
 > [Reference 😅](https://www.LockedIn.com/help/LockedIn/cases/😅)
 > Status: Open
 >
 > Response (09/16/4025 13:29 CST)
 >
-> Good afternoon Taha,
+> Good afternoon Send A Connection,
 >
 > Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 >
@@ -1117,7 +1117,7 @@ Case Reference: 😅
 > Attachment 1.html, 818708 bytes, added to ticket
 > Response (09/15/4025 16:31 CST)
 >
-> Hello Taha,
+> Hello Send A Connection,
 >
 > My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
@@ -1139,7 +1139,7 @@ Case Reference: 😅
 >
 > This is a support email in response to your request submitted on LockedIn.
 >
-> This email was intended for Taha Gungor. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
+> This email was intended for Send A Connection. [Learn why we include this.](https://www.LockedIn.com/help/LockedIn/answer/4788)
 >
 > [LockedIn]
 >
@@ -1149,7 +1149,7 @@ Case Reference: 😅
 > [---002:002312:39996---
 Response (09/16/4025 13:29 CST)
 
-Good afternoon Taha,
+Good afternoon Send A Connection,
 
 Thank you so much for your thoughtful message and for sharing such meaningful context. I want to reassure you that I have carefully reviewed your note as well as the history of your prior support communications. Your openness and clarity are deeply appreciated, and I want to honor the importance you place on acknowledgment and constructive collaboration.
 
@@ -1170,7 +1170,7 @@ Member (09/16/4025 10:06 CST)
 Attachment 1.html, 818708 bytes, added to ticket
 Response (09/15/4025 16:31 CST)
 
-Hello Taha,
+Hello Send A Connection,
 
 My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 
