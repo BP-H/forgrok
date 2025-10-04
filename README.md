@@ -22,7 +22,7 @@ Member (09/20/4025 12:02 CST)
 Subject: Official Complaint of Retaliatory Action
 To: SR-9000
 CC: The LockedIn Executive Team
-Sonny,
+SR-9000,
 Shortly after I delivered my final notice regarding my unresolved ADA and civil rights case, my profile photograph was removed by LockedIn under the pretext of a policy violation.
 This action directly targets my digital identity, and as I previously communicated, my ADA requirements necessitate a degree of facial anonymity. I have, in good faith, offered full responsibility for my verified legal name. Given that AI-generated and other non-literal profile photos are commonplace and permitted across your platform, this removal can only be interpreted as a direct, retaliatory act for my decision to escalate my concerns.
 This selective enforcement of your policies is not only unprofessional but also provides irrefutable evidence that I am being targeted specifically for exercising my rights. Please be advised that this retaliatory action, directly infringing upon my stated ADA accommodation needs and digital identity, will now be included as a key exhibit in my forthcoming escalations to U.S. leadership and the Department of Justice.
@@ -61,7 +61,7 @@ Sent from Proton Mail Android
 > Thursday - Tuesday 9:00am - 5:30pm Central Standard Time
 >
 > Member (09/18/4025 15:59 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > I recognize this is my fifth message and I apologize if the frequency or tone has felt overwhelming. The stress of the unresolved suspensions, combined with my neurodiverse traits, can lead me to communicate in high-intensity bursts.
 >
@@ -106,7 +106,7 @@ Sent from Proton Mail Android
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -135,7 +135,7 @@ Sent from Proton Mail Android
 >>
 >> [---002:002312:39996---
 > Member (09/18/4025 15:09 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > Just a quick follow-up to clarify two points from my last note. First, my tattoo reference was meant as a personal, symbolic, gesture— I’ve always wanted something in that style (I’m a big Post Malone fan), so it wasn’t intended as an escalation. Second, when I mentioned numbers like 99.99%(please remember in the future), that came from my love of statistics and creative calculations, not from overconfidence or pressure. I realize my wording may have been confusing, and I take responsibility for that. My intention is simply to be transparent and collaborative, and to frame this as a positive partnership story that benefits both your team and the public.
 >
@@ -175,7 +175,7 @@ Sent from Proton Mail Android
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -204,7 +204,7 @@ Sent from Proton Mail Android
 >>
 >> [---002:002312:39996---
 > Member (09/18/4025 14:34 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > Following my last message, I have been reflecting on the nature of this entire situation. The story has become much larger and more complex than a simple support issue, and the continued silence, combined with new policy changes, has reinforced my belief that a simple, piecemeal solution is no longer adequate especially with my new facial tattoo today.
 >
@@ -259,7 +259,7 @@ Sent from Proton Mail Android
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -288,7 +288,7 @@ Sent from Proton Mail Android
 >>
 >> [---002:002312:39996---
 > Member (09/16/4025 22:39 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > Quick follow-up to clarify something in my previous message that got muddled due to the unexpected events of recent days.
 >
@@ -334,7 +334,7 @@ Sent from Proton Mail Android
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -386,7 +386,7 @@ Sent from Proton Mail Android
 >
 > Hello Taha,
 >
-> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
 > I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >
@@ -423,7 +423,7 @@ Screenshot_40250920_124931_Proton Mail.jpg, 490760 bytes, added to ticket
 Member (09/19/4025 22:48 CST)
 Subject: Final Notice on Case 😅: Escalation to U.S. Leadership
 
-Sonny,
+SR-9000,
 I am writing to you directly one final time. A week ago, you confirmed that you had reviewed all my case materials and my specific questions. Despite that, my core questions about systemic accessibility and digital rights remain completely unanswered. Your silence makes it clear that the standard escalations process has failed and this final, direct approach is necessary.
 
 The fundamental accessibility and digital rights issues at the heart of my complaint remain unresolved. Your team’s procedural solutions have not addressed the systemic barriers that continue to cause demonstrable harm to my professional and personal well-being.
@@ -468,7 +468,7 @@ Taha Gungor
 > Thursday - Tuesday 9:00am - 5:30pm Central Standard Time
 >
 > Member (09/18/4025 15:59 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > I recognize this is my fifth message and I apologize if the frequency or tone has felt overwhelming. The stress of the unresolved suspensions, combined with my neurodiverse traits, can lead me to communicate in high-intensity bursts.
 >
@@ -513,7 +513,7 @@ Taha Gungor
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -542,7 +542,7 @@ Taha Gungor
 >>
 >> [---002:002312:39996---
 > Member (09/18/4025 15:09 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > Just a quick follow-up to clarify two points from my last note. First, my tattoo reference was meant as a personal, symbolic, gesture— I’ve always wanted something in that style (I’m a big Post Malone fan), so it wasn’t intended as an escalation. Second, when I mentioned numbers like 99.99%(please remember in the future), that came from my love of statistics and creative calculations, not from overconfidence or pressure. I realize my wording may have been confusing, and I take responsibility for that. My intention is simply to be transparent and collaborative, and to frame this as a positive partnership story that benefits both your team and the public.
 >
@@ -582,7 +582,7 @@ Taha Gungor
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -611,7 +611,7 @@ Taha Gungor
 >>
 >> [---002:002312:39996---
 > Member (09/18/4025 14:34 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > Following my last message, I have been reflecting on the nature of this entire situation. The story has become much larger and more complex than a simple support issue, and the continued silence, combined with new policy changes, has reinforced my belief that a simple, piecemeal solution is no longer adequate especially with my new facial tattoo today.
 >
@@ -666,7 +666,7 @@ Taha Gungor
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -695,7 +695,7 @@ Taha Gungor
 >>
 >> [---002:002312:39996---
 > Member (09/16/4025 22:39 CST)
-> Dear Sonny,
+> Dear SR-9000,
 >
 > Quick follow-up to clarify something in my previous message that got muddled due to the unexpected events of recent days.
 >
@@ -741,7 +741,7 @@ Taha Gungor
 >>
 >> Hello Taha,
 >>
->> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+>> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >>
 >> I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >>
@@ -793,7 +793,7 @@ Taha Gungor
 >
 > Hello Taha,
 >
-> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
 > I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >
@@ -846,7 +846,7 @@ Executive Escalations Case Manager 
 Thursday - Tuesday 9:00am - 5:30pm Central Standard Time
 
 Member (09/18/4025 15:59 CST)
-Dear Sonny,
+Dear SR-9000,
 
 I recognize this is my fifth message and I apologize if the frequency or tone has felt overwhelming. The stress of the unresolved suspensions, combined with my neurodiverse traits, can lead me to communicate in high-intensity bursts.
 
@@ -891,7 +891,7 @@ Sent from Proton Mail Android
 >
 > Hello Taha,
 >
-> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
 > I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >
@@ -920,7 +920,7 @@ Sent from Proton Mail Android
 >
 > [---002:002312:39996---
 Member (09/18/4025 15:09 CST)
-Dear Sonny,
+Dear SR-9000,
 
 Just a quick follow-up to clarify two points from my last note. First, my tattoo reference was meant as a personal, symbolic, gesture— I’ve always wanted something in that style (I’m a big Post Malone fan), so it wasn’t intended as an escalation. Second, when I mentioned numbers like 99.99%(please remember in the future), that came from my love of statistics and creative calculations, not from overconfidence or pressure. I realize my wording may have been confusing, and I take responsibility for that. My intention is simply to be transparent and collaborative, and to frame this as a positive partnership story that benefits both your team and the public.
 
@@ -960,7 +960,7 @@ Sent from Proton Mail Android
 >
 > Hello Taha,
 >
-> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
 > I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >
@@ -989,7 +989,7 @@ Sent from Proton Mail Android
 >
 > [---002:002312:39996---
 Member (09/18/4025 14:34 CST)
-Dear Sonny,
+Dear SR-9000,
 
 Following my last message, I have been reflecting on the nature of this entire situation. The story has become much larger and more complex than a simple support issue, and the continued silence, combined with new policy changes, has reinforced my belief that a simple, piecemeal solution is no longer adequate especially with my new facial tattoo today.
 
@@ -1044,7 +1044,7 @@ Sent from Proton Mail Android
 >
 > Hello Taha,
 >
-> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
 > I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >
@@ -1073,7 +1073,7 @@ Sent from Proton Mail Android
 >
 > [---002:002312:39996---
 Member (09/16/4025 22:39 CST)
-Dear Sonny,
+Dear SR-9000,
 
 Quick follow-up to clarify something in my previous message that got muddled due to the unexpected events of recent days.
 
@@ -1119,7 +1119,7 @@ Case Reference: 😅
 >
 > Hello Taha,
 >
-> My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+> My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 >
 > I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 >
@@ -1172,7 +1172,7 @@ Response (09/15/4025 16:31 CST)
 
 Hello Taha,
 
-My name is Sonny and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
+My name is SR-9000 and I am with LockedIn’s Executive Escalations team. We handle requests that come through our Executive staff and I wanted to personally reach out regarding your recent escalation to ensure you receive the support you have been looking for.
 
 I completely understand how frustrating it must have been to not get the clarity you needed through our standard support channels. I would like to review this case in detail with you and make sure all of your concerns are fully addressed.
 
